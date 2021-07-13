@@ -1,0 +1,1 @@
+This dish has raw fish inside a roll of rice that is wrapped in seaweed.
